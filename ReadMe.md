@@ -35,7 +35,8 @@ http://www.jacquieetmicheltv2.net/
 http://www.tonpornodujour.com/
   Ton porno du jour
 	
-https://www.vixen.com/videos/
+![vixen.ico](view-source:https://www.vixen.com/favicon.ico) 
+[Vixen]https://www.vixen.com/videos/
 http://www.tushy.com/videos/
 http://www.tushyraw.com/videos/
 https://www.blacked.com/videos/
