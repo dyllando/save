@@ -1,15 +1,15 @@
 ![Porno](https://di.phncdn.com/www-static/images/pornhub_logo_straight.png)
 
 Hub :
----------
-[SexyPorn](https://sxyprn.com/)
+
+![ico](https://www.sxyprn.com/favicon.ico) [SexyPorn](https://sxyprn.com/)
 
 [Pornhub](http://www.pornhub.com/)
 
 [STREAM XXX](http://streamxxx.tv/)
 
 [K18.co](http://k18.co/)
-
+ 
 [SpankBang](http://fr.spankbang.com/)
 
 [Xnxx.com](https://www.xnxx.com/)
@@ -30,17 +30,19 @@ Hub :
 
 Sites:
 ---------
-http://www.jacquieetmicheltv2.net/
-  Jacquie et Michel
-http://www.tonpornodujour.com/
-  Ton porno du jour
-	
-![vixen.ico](view-source:https://www.vixen.com/favicon.ico) 
-[Vixen]https://www.vixen.com/videos/
-http://www.tushy.com/videos/
-http://www.tushyraw.com/videos/
-https://www.blacked.com/videos/
-https://www.blackedraw.com/videos/
+Jacquie et Michel http://www.jacquieetmicheltv2.net/
+
+Ton porno du jour http://www.tonpornodujour.com/
+  
+![ico](https://www.vixen.com/favicon.ico) [Vixen](https://www.vixen.com/videos/)
+
+![ico](https://www.tushy.com/favicon.ico) [Tuchy](http://www.tushy.com/videos/)
+
+![ico](https://www.tushyraw.com/favicon.ico) http://www.tushyraw.com/videos/
+
+![ico](https://www.blacked.com/favicon.ico) https://www.blacked.com/videos/
+
+![ico](https://www.blackedraw.com/favicon.ico) https://www.blackedraw.com/videos/
 
 
 [BAbes](http://www.babes.com/tour/home/?nats=MTgxLjEuMS4xLjMuMC4wLjAuMA)
