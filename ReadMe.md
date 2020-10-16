@@ -93,5 +93,9 @@ http://new.bangbros.com/videos/undercover-stripper_3405145.htm
 
 http://new.bangbros.com/videos/a-porn-star-is-born-on-the-bus_3407463.htm
 
+https://streamxxx.tv/my-sisters-hot-friend-amanda-tate-2013/
+
+https://streamxxx.tv/bang-bus-megapack/
+
 
 
